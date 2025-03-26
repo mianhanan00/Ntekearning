@@ -1,2 +1,2 @@
-# Ntekearning
+# Adnan
 Crypto
